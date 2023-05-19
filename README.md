@@ -20,7 +20,7 @@
 
 ## Connect with Me
 
-🔗 Let's connect on [LinkedIn](https://www.linkedin.com/in/mohammad-adnan-muzafar-b01857192/)) to explore exciting opportunities and collaborate on cutting-edge projects. I'm passionate about staying up-to-date with the latest industry trends and building a strong network of like-minded professionals.
+🔗 Let's connect on [LinkedIn](https://www.linkedin.com/in/mohammad-adnan-muzafar-b01857192/) to explore exciting opportunities and collaborate on cutting-edge projects. I'm passionate about staying up-to-date with the latest industry trends and building a strong network of like-minded professionals.
 
 ## Explore My Work
 
